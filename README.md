@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Revati-Patil
+- 👋 Hi, I’m Revati Patil
 - 👀 I’m interested in Learning New Projects
 - 🌱 I'm currently pursuing B.Sc- I.T
 - 📫 How to reach me: Mail me at revatipatil2509@gmail.com
